@@ -2,7 +2,7 @@
 -  I’m interested in python and java
 -  I’m currently learning python and java ☺
 -  I'm looking to collaborate on projects that can teach me and improve my portfolio
--  How to reach me? You can call via WhatsApp +55 41 99252-3596 or Instagram @zpawlo, there is also gmail pawllohen@gmail.com
+-  How to reach me? You can call via Instagram @zpawlo, there is also gmail pawllohen@gmail.com
 -  Pronouns:⁠Se estiver se sentindo desmotivados ou sentindo que não é bom o suficiente incendeie  o seu coração -煉獄炎柱
 -  Fun fact:to fazendo faculdade pra virar garoto de progama :D
 
