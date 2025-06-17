@@ -4,7 +4,7 @@
 -  I'm looking to collaborate on projects that can teach me and improve my portfolio
 -  How to reach me? You can call via Instagram @zpawlo, there is also gmail pawllohen@gmail.com
 -  Pronouns:⁠Se estiver se sentindo desmotivados ou sentindo que não é bom o suficiente incendeie  o seu coração -煉獄炎柱
--  Fun fact:to fazendo faculdade pra virar garoto de progama :D
+-  Fun fact:to fazendo faculdade pra virar garoto de programa :D
 
 
 ![HTML5](https://img.shields.io/badge/HTML5-E34F26?style=for-the-badge&logo=html5&logoColor=white)
